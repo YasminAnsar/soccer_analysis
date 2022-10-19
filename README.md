@@ -5,7 +5,6 @@
 
 ##### [Li Laga Logo](https://assets.laliga.com/assets/logos/laliga-v/laliga-v-300x300.jpg)
 
-##### [Li Laga Logo](www.assets.laliga.com/assets/logos/laliga-v/laliga-v-300x300.jpg)
 
 
 
